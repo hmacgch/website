@@ -1,4 +1,6 @@
 ## 童年的幻梦ACG · 最新网址（2023.11.28 最后编辑时间）
+> 官方动态：[https://60mn4j-my.sharepoint.com/:w:/g/personal/hmacg_tndhm_onmicrosoft_com/EQ7B3Lk2H-9NnkBT2NUOn4cBL9lYHb-5RtG73nJgvQ-4GA?e=A4Aver](https://60mn4j-my.sharepoint.com/:w:/g/personal/hmacg_tndhm_onmicrosoft_com/EQ7B3Lk2H-9NnkBT2NUOn4cBL9lYHb-5RtG73nJgvQ-4GA?e=A4Aver)
+> 
 > 总导航页：[https://forms.office.com/r/XjFx8YKzMZ](https://forms.office.com/r/XjFx8YKzMZ)
 >
 > 资源下载页：[https://forms.office.com/r/HHQz267i2U](https://forms.office.com/r/HHQz267i2U)

@@ -1,9 +1,17 @@
-## 童年的幻梦ACG · 最新网址（2023.11.28 最后编辑时间）
-> 官方动态：[https://60mn4j-my.sharepoint.com/:f:/g/personal/hmacg_tndhm_onmicrosoft_com/EmY_jRExOtZOn1gMdUsvgasBZBbr8vuU1ZzRjIVttBPwEA?e=wLciVl](https://60mn4j-my.sharepoint.com/:f:/g/personal/hmacg_tndhm_onmicrosoft_com/EmY_jRExOtZOn1gMdUsvgasBZBbr8vuU1ZzRjIVttBPwEA?e=wLciVl)
+## 童年的幻梦ACG · 最新网址（2023.12.10 最后编辑时间）
+> ## 更多分享，更多动力
+> 
+> 每日动态：[https://60mn4j-my.sharepoint.com/:f:/g/personal/hmacg_tndhm_onmicrosoft_com/EmY_jRExOtZOn1gMdUsvgasBZBbr8vuU1ZzRjIVttBPwEA?e=wLciVl](https://60mn4j-my.sharepoint.com/:f:/g/personal/hmacg_tndhm_onmicrosoft_com/EmY_jRExOtZOn1gMdUsvgasBZBbr8vuU1ZzRjIVttBPwEA?e=wLciVl)
+>
+> （PS：↑↑↑↑↑↑每天更新的内容会写在里面，还有吃瓜图片视频段子漫画软件推荐↑↑↑↑↑↑）
 > 
 > 总导航页：[https://forms.office.com/r/XjFx8YKzMZ](https://forms.office.com/r/XjFx8YKzMZ)
 >
+> （PS：↑↑↑↑↑↑导航页，所有链接都在里面汇总好了，记得收藏↑↑↑↑↑↑）
+>
 > 资源下载页：[https://forms.office.com/r/HHQz267i2U](https://forms.office.com/r/HHQz267i2U)
+>
+> （PS：↑↑↑↑↑↑你需要的资源都在里面直接下载↑↑↑↑↑↑）
 
 ## 童年的幻梦ACG · QQ群聊天
 > [QQ群聊149499981](https://qm.qq.com/cgi-bin/qm/qr?k=ZxG6mL9j3zvJE16pkZVPXoBb5A8apsSL&jump_from=webapi&authKey=U1ep+uFCE5mu8lHrmgsAAgkGeuN5J0Tl9c8KX7fbRS3z/Op1qTtke1ETn9l+hzzD)

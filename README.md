@@ -14,7 +14,7 @@
 > （PS：↑↑↑↑↑↑你需要的资源都在里面直接下载↑↑↑↑↑↑）
 
 ## 童年的幻梦ACG · QQ群聊天
-> [QQ群聊149499981](https://qm.qq.com/cgi-bin/qm/qr?k=ZxG6mL9j3zvJE16pkZVPXoBb5A8apsSL&jump_from=webapi&authKey=U1ep+uFCE5mu8lHrmgsAAgkGeuN5J0Tl9c8KX7fbRS3z/Op1qTtke1ETn9l+hzzD)
+> QQ群聊653110052
 > 
 >[QQ频道:童年的幻梦ACG](https://pd.qq.com/s/fhev8h8wo)
 
